@@ -1,1 +1,0 @@
-# LInuxPresentaionDay-DK.github.io
